@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm Ewann, a engineering student. I love new challenges and to learn new things ! 😶‍🌫️ \n
+I'm Ewann, a engineering student. I love new challenges and to learn new things ! 😶‍🌫️  
 
 *The human fuel is passion*
 <!--
